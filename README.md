@@ -1,1 +1,0 @@
-# Diskretnaya-matematika-2025
